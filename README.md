@@ -1,2 +1,2 @@
 "# HUMCOM-na-subject-ni-Marc" 
-WELCOME TO MY GITHUB
+Biji jon Di MakaOlo-an :P
